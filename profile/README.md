@@ -66,7 +66,6 @@
 
 ![Screenshot](https://i.ytimg.com/vi/j88EnC7wxr8/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCGGJc7SD-eqhWFrcp-YEeDmxKAOg)
 
-![Screenshot](https://modmenuz.com/storage/hwid-spoofer-v52.jpg)
 
 
 ---
